@@ -1,0 +1,2 @@
+# oyunfirarda
+kafanıza göre
